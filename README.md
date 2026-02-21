@@ -8,6 +8,8 @@ People who are aware of someone's boundaries, but will continously push them, or
 
 People who are extraordinarily rude without reason.
 
+People who justify, participate in, encourage, or tolerate harassment.
+
 <details>
   <summary>People who encourage, participate, or justify sensitive subjects</summary>
 
@@ -23,7 +25,7 @@ This also goes for those who tolerate the above sensitive subjects, by that I me
 
 People who assume the worst of others, especially without knowing the person or how they act.
 
-People treat their assumptions as fact, people who then use that assumption to make a statement about the person.
+People who treat their assumptions as fact, people who then use that assumption to make a statement about the person.
 
 > About me.
 
@@ -45,4 +47,4 @@ Hah. then again? what do I know?
 
 Anyway, I hope your day is well.
 
-> Thank you for reading, I appreciate it
+> Thank you for reading, I appreciate it.

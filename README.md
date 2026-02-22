@@ -39,7 +39,7 @@ Note: An assumption is something WITHOUT any evidence to back it up that is trea
 
  I have autism, so let that explain the reason why I may act the way I sometimes do, of course, if I do something wrong, do not use this as a way to justify my actions.
 
- If I do end up doing something wrong, explain it to me (calmly, emotional language may blind me and make me feel threatened, that is not a good response), and I will not do it again. If I DO end up doing it again, over and over, no matter what, it is okay if you want to remove yourself from my presence, you have that right.
+ If I do end up doing something wrong, explain it to me (calmly, emotional language may blind me and make me feel threatened, that is not a good response), and I will not do it again.
 
 > Some things I find important to note.
 

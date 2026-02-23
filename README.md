@@ -11,11 +11,13 @@ People who are extraordinarily rude without reason.
 
 People who justify, participate in, encourage, or tolerate harassment.
 
+People who encourage self harming behaviors.
+
 <details>
   <summary>People who encourage, participate, or justify sensitive subjects</summary>
 
   ```
-  Rape, sex trafficking, pedophillia, eating disorders, self harm, racism, misogyny, sexism, homophobia, transphobia, sexualizing minors, ableism, ect.
+  Rape, sex trafficking, pedophillia, racism, misogyny, sexism, homophobia, transphobia, sexualizing minors, ableism, ect.
   ```
 </details>
 For the above: if you wish for more information on what 'sensitive subjects' entails, you click on the text, it has been hidden intentionally so as to not force others to be uncomfortable by reading the text.

@@ -1,4 +1,5 @@
 # Information
+Note: This readme will change as time goes on, such as being edited to reflect my current ideas, fixations, or views on something (basically as I do more research on my views).
 
 ..?
 
@@ -19,15 +20,13 @@ People who justify, participate in, encourage, or tolerate harassment.
 </details>
 For the above: if you wish for more information on what 'sensitive subjects' entails, you click on the text, it has been hidden intentionally so as to not force others to be uncomfortable by reading the text.
 
-This also goes for those who tolerate the above sensitive subjects, by that I mean, if you could stop those sensitive subjects, or lessen them, you would still choose not to and allow them to continue. 
-
 > Thin ice.
 
-People who assume the worst of others without knowing the person or how they act.
+People who treat others according to their internal assumptions.
 
-People who treat their assumptions as fact, people who then use that assumption to make a statement about the person.
+Another note: Internal assumptions are subjective, being based on personal history and experiences rather than fact.
 
-Note: An assumption is something WITHOUT any evidence to back it up that is treated as a fact, or certain.
+..One more note: If you want to test your assumptions, change your assumption to be a hypothesis, and treat it accordingly; create a statement, and then try to gather evidence to either support or refute your claim, once enough evidence is gathered, evaluate the findings, then, you can make your final opinion.
 
 > About me.
 
@@ -37,7 +36,7 @@ Note: An assumption is something WITHOUT any evidence to back it up that is trea
 
  If you upset me, I will tell you, only if we're friends or acquaintances.
 
- I have autism, so let that explain the reason why I may act the way I sometimes do, of course, if I do something wrong, do not use this as a way to justify my actions.
+ I have autism, so let that explain the reason why I may act the way I sometimes do, of course, if I do something wrong, do not use this (my autism) as a way to justify my actions.
 
  If I do end up doing something wrong, explain it to me (calmly, emotional language may blind me and make me feel threatened, that is not a good response), and I will not do it again.
 
@@ -49,7 +48,7 @@ PLEASE stay safe. If you suspect yourself to be in danger, do not be afraid to c
 
 If you suspect yourself to be in a dangerous relationship but are not sure, please talk about why you feel this way with a trusted individual, perferably someone who doesn't know the person you will be talking about all too well, as that could lead to bias, or a skewed perception of events, it is good to get another's opinion on something. If they agree with you on the person being dangerous, please get out of that relationship. Do not go to talk to the person alone, please make sure to prioritize your safety by telling other trusted individuals about your plan to talk to the person, if needed, you can bring them along if needed, talk to the person in a public space, as doing so will lower chances of violence. Remain direct and resepectful, you can practice what you are going to say if possible, do not forget to stand your ground if they try to twist your words. Refuse any contact after leaving the relationship. Please also consider seeking professional mental health support, remember that you did not, or do not, deserve to suffer through any abuse.
 
-Note: I feel it to be important to add: I do not just mean a romantic relationship, I also mean platonic relationships, like friends or family, when I speak of relationships.
+Note: I feel it to be important to add that when I speak of relationships, I do not just mean a romantic relationship, I also mean platonic relationships, like friends or family.
 
 Source: https://www.uwhealth.org/news/safely-get-unsafe-relationship 
 
@@ -58,3 +57,5 @@ Note for source : the preposition 'Ex' is not strictly only used for romantic re
 If you need help, please try to find out the hotline specific for your area that will help you go through whatever you're going through, you don't need to suffer alone, you are human, you too need a shoulder you can lean on, please never forget that.
 
 > Thank you for reading, I appreciate it.
+
+..Can we rest now?

@@ -1,5 +1,5 @@
 # Information
-Note: This readme will change as time goes on, such as being edited to reflect my current ideas, fixations, or views on something.
+Note: This readme will change as time goes on, such as being edited to reflect my current ideas, fixations, boundaries, or will be edited to fix something I previously misworded.
 
 ..?
 

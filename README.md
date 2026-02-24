@@ -7,7 +7,7 @@ Note: This readme will change as time goes on, such as being edited to reflect m
 
 People who are aware of someone's boundaries, but will continously push them, or defy them.
 
-People who are rude, not the joking or teasing rude by the way, just people who are cruel, especially if it's in your intention.
+People who are rude, not the joking or teasing rude by the way, just people who are cruel, especially if it's your intention to be such.
 
 People who justify, participate in, encourage, or tolerate harassment.
 

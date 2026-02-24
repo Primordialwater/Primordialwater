@@ -1,17 +1,19 @@
 # Information
-Note: This readme will change as time goes on, such as being edited to reflect my current ideas, fixations, boundaries, or will be edited to fix something I previously misworded.
+Note: This readme will change as time goes on, such as being edited to reflect my current ideas, fixations, boundaries, or will be edited to fix something.
 
 ..?
 
 > Do not interact.
 
-People who are aware of someone's boundaries, but will continously push them, or defy them. You have no place in my life.
+People who are aware of someone's boundaries, but will continously push them, or defy them.
 
 People who are extraordinarily rude without reason.
 
 People who justify, participate in, encourage, or tolerate harassment.
 
 People who encourage self harming behaviors.
+
+People who generalize groups of others.
 
 <details>
   <summary>People who encourage, participate, or justify sensitive subjects</summary>
@@ -24,11 +26,11 @@ For the above: if you wish for more information on what 'sensitive subjects' ent
 
 > Thin ice.
 
-People who treat others according to their internal assumptions.
+People who are rude, not the joking or teasing rude by the way, just cruel.
 
-Another note: Internal assumptions are subjective, being based on personal history and experiences rather than fact.
+People who make statements about others based on assumptions.
 
-..One more note: If you want to test your assumptions, change your assumption to be a hypothesis, and treat it accordingly; create a statement, and then try to gather evidence to either support or refute your claim, once enough evidence is gathered, evaluate the findings, then, you can make your final opinion.
+Note for those who care: If you want to test your assumptions, change your assumption to be a hypothesis, and treat it accordingly; gather evidence to either support or refute your claim, once enough evidence is gathered, evaluate the findings, then, you can make your final opinion.. or you lowk could just ask the person if you trust them to be honest to you.
 
 > About me.
 
@@ -41,6 +43,8 @@ Another note: Internal assumptions are subjective, being based on personal histo
  I have autism, so let that explain the reason why I may act the way I sometimes do, of course, if I do something wrong, do not use this (my autism) as a way to justify my actions.
 
  If I do end up doing something wrong, explain it to me (calmly, emotional language may blind me and make me feel threatened, that is not a good response), and I will not do it again.
+
+ I purposefully misspell words when talking to others sometimes (ex. like becomes liek), if you cannot read my text because of this and I'm hanging out with, talking to, or in a conversation with you, you can tell me, and do it nicely, please!
 
 > Some things I find important to note.
 
@@ -56,7 +60,7 @@ Source: https://www.uwhealth.org/news/safely-get-unsafe-relationship
 
 Note for source : the preposition 'Ex' is not strictly only used for romantic relationships, though I know it to be used commonly in those ways.. I just felt it important to note that.
 
-If you need help, please try to find out the hotline specific for your area that will help you go through whatever you're going through, you don't need to suffer alone, you are human, you too need a shoulder you can lean on, please never forget that.
+If you, or someone you know, needs help, please try to find out the hotline specific for your area that will help you, or the other person, go through whatever you're going through. No one needs to suffer alone, we are human, we need a shoulder we can lean on, so please, never forget that.
 
 > Thank you for reading, I appreciate it.
 

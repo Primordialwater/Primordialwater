@@ -7,13 +7,13 @@ Note: This readme will change as time goes on, such as being edited to reflect m
 
 People who are aware of someone's boundaries, but will continously push them, or defy them.
 
-People who are extraordinarily rude without reason.
+People who are rude, not the joking or teasing rude by the way, just people who are cruel, especially if it's in your intention.
 
 People who justify, participate in, encourage, or tolerate harassment.
 
 People who encourage self harming behaviors.
 
-People who generalize groups of others.
+People who generalize groups of people.
 
 <details>
   <summary>People who encourage, participate, or justify sensitive subjects</summary>
@@ -25,8 +25,6 @@ People who generalize groups of others.
 For the above: if you wish for more information on what 'sensitive subjects' entails, you click on the text, it has been hidden intentionally so as to not force others to be uncomfortable by reading the text.
 
 > Thin ice.
-
-People who are rude, not the joking or teasing rude by the way, just cruel.
 
 People who make statements about others based on assumptions.
 

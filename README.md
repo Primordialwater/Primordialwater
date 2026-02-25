@@ -11,6 +11,8 @@ People who are rude, not the joking or teasing rude by the way, just people who 
 
 People who justify, participate in, encourage, or tolerate harassment.
 
+People who mistreat others based on rumors.
+
 People who encourage self harming behaviors.
 
 People who generalize groups of people.
@@ -26,9 +28,7 @@ For the above: if you wish for more information on what 'sensitive subjects' ent
 
 > Thin ice.
 
-People who make statements about others based on assumptions.
-
-Note for those who care: If you want to test your assumptions, change your assumption to be a hypothesis, and treat it accordingly; gather evidence to either support or refute your claim, once enough evidence is gathered, evaluate the findings, then, you can make your final opinion.. or you lowk could just ask the person if you trust them to be honest to you.
+..I'll look into it.
 
 > About me.
 

@@ -38,9 +38,11 @@ For the above: if you wish for more information on what 'sensitive subjects' ent
 
  I have autism, so let that explain the reason why I may act the way I sometimes do, of course, if I do something wrong, do not use this (my autism) as a way to justify my actions.
 
- If I do end up doing something wrong, explain it to me (calmly, emotional language may blind me and make me feel threatened, that is not a good response), and I will not do it again.
+ If I do end up doing something wrong, explain it to me (calmly), and I will not do it again.
 
  I purposefully misspell words when talking to others sometimes (ex. like becomes liek), if you cannot read my text because of this and I'm hanging out with, talking to, or in a conversation with you, you can tell me, and do it nicely, please!
+
+ C+hing is allowed unless my name reads : Dniuid / Dni (this is to be ignored ONLY if my name states otherwise).
 
 > Some things I find important to note.
 

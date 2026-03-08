@@ -34,7 +34,7 @@ For the above: if you wish for more information on what 'sensitive subjects' ent
 
  I may be blunt at times, or dry. However, I am not devoid of warmth, as I am friendly and I will likely joke around with you.
 
- If you upset me, I will tell you, only if we're friends or acquaintances.
+ If you upset me, I will only tell you if we happen to be friends or acquaintances.
 
  I have autism, so let that explain the reason why I may act the way I sometimes do, of course, if I do something wrong, do not use this (my autism) as a way to justify my actions.
 
@@ -43,6 +43,8 @@ For the above: if you wish for more information on what 'sensitive subjects' ent
  I purposefully misspell words when talking to others sometimes (ex. like becomes liek), if you cannot read my text because of this and I'm hanging out with, talking to, or in a conversation with you, you can tell me, and do it nicely, please!
 
  C+hing is allowed unless my name reads : Dniuid / Dni (this is to be ignored ONLY if my name states otherwise).
+
+ I do like to tease my friends, should you become a victim of my chaffing, and dislike such, please do tell me (clearly), as I may not understand any clues you place for me.
 
 > Some things I find important to note.
 

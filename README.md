@@ -40,7 +40,9 @@ For the above: if you wish for more information on what 'sensitive subjects' ent
 
  If I do end up doing something wrong, explain it to me (calmly), and I will not do it again.
 
- I purposefully misspell words when talking to others sometimes (ex. like becomes liek), if you cannot read my text because of this and I'm hanging out with, talking to, or in a conversation with you, you can tell me, and do it nicely, please!
+ I purposefully misspell words when talking to others SOMETIMES (ex. like becomes liek), if you cannot read my text because of this and I'm hanging out with, talking to, or in a conversation with you, you can tell me, and do it nicely, please!
+
+ This does not mean all my misspelling is on purpose, ok? ok.
 
  C+hing is allowed unless my name reads : Dniuid / Dni (this is to be ignored ONLY if my name states otherwise).
 

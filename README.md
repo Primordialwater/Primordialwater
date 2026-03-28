@@ -7,9 +7,11 @@ Note: This readme will change as time goes on, such as being edited to reflect m
 
 People who are aware of someone's boundaries, but will continously push them, or defy them.
 
+*Dni is a boundary, if you cannot respect that, do not interact with me.
+
 People who justify, participate in, encourage, or tolerate harassment.
 
-People who mistreat others based on rumors.
+People who mistreat others based on rumors, or based on things that hold no proof (assumptions).
 
 People who encourage self harming behaviors.
 

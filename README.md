@@ -46,7 +46,7 @@ For the above: if you wish for more information on what 'sensitive subjects' ent
 
  This does not mean all my misspelling is on purpose, ok? ok.
 
- C+hing is allowed unless my name reads : Dniuid / Dni (this is to be ignored ONLY if my name states otherwise).
+ C+hing is allowed unless my name reads : Dniuid / Dni (this is to be ignored ONLY if my name states otherwise), if you plan on C+hing, please ask me first!
 
  I do like to tease my friends, should you become a victim of my chaffing, and dislike such, please do tell me (clearly), as I may not understand any clues you place for me.
 

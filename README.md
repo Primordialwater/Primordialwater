@@ -11,7 +11,7 @@ People who are aware of someone's boundaries, but will continously push them, or
 
 People who justify, participate in, encourage, or tolerate harassment.
 
-People who mistreat others based on rumors, or based on things that hold no proof (assumptions).
+People who mistreat others based on rumors, or based on things that hold no proof.
 
 People who encourage self harming behaviors.
 

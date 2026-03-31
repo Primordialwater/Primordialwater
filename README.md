@@ -28,7 +28,7 @@ For the above: if you wish for more information on what 'sensitive subjects' ent
 
 > Thin ice.
 
-..I'll look into it.
+..nothing, not yet atleast, but it'll stay here. just incase..
 
 > About me.
 

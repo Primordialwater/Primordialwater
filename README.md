@@ -44,7 +44,7 @@ For the above: if you wish for more information on what 'sensitive subjects' ent
 
  This does not mean all my misspelling is on purpose, ok? ok.
 
- C+hing is allowed unless my name reads : Dniuid / Dni (this is to be ignored ONLY if my name states otherwise), if you plan on C+hing, please ask me first!
+ C+hing is allowed unless my name reads : Dniuid / Dni, if you plan on C+hing, please ask me first (For both cases; if my name states C+H, it is allowed and, you do not need to ask).
 
  I do like to tease my friends, should you become a victim of my chaffing, and dislike such, please do tell me (clearly), as I may not understand any clues you place for me.
 
@@ -62,7 +62,7 @@ Source: https://www.uwhealth.org/news/safely-get-unsafe-relationship
 
 Note for source : the preposition 'Ex' is not strictly only used for romantic relationships, though I know it to be used commonly in those ways.. I just felt it important to note that.
 
-If you, or someone you know, needs help, please try to find out the hotline specific for your area that will help you, or the other person, go through whatever you're going through. No one needs to suffer alone, we are human, we need a shoulder we can lean on, so please, never forget that.
+If you, or someone you know, needs help, please try to find out the hotline specific for your area that will help you, or the other person, get through whatever is happening. No one needs to suffer alone, we are human, we too, need a shoulder we can lean on, so please, never forget that.
 
 > Thank you for reading, I appreciate it.
 

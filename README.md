@@ -36,6 +36,8 @@ For the above: if you wish for more information on what 'sensitive subjects' ent
 
  I may be blunt at times, or dry. However, I am not devoid of warmth, as I am friendly and I will likely joke around with you.
 
+ My mood will randomly change, or how I talk (text?), I don't know, It just happens.
+
  I have autism, so let that explain the reason why I may act the way I sometimes do, of course, if I do something wrong, do not use this (my autism) as a way to justify my actions.
 
  If I do end up doing something wrong, explain it to me (calmly), and I will not do it again.

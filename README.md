@@ -32,7 +32,7 @@ For the above: if you wish for more information on what 'sensitive subjects' ent
 
 > About me.
 
- I like cookie run: kingdom and Genshin Impact.
+ I like cookie run: kingdom, Genshin Impact, and dandys world.
 
  I may be blunt at times, or dry. However, I am not devoid of warmth, as I am friendly and I will likely joke around with you.
 

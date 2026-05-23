@@ -32,7 +32,7 @@ For the above: if you wish for more information on what 'sensitive subjects' ent
 
 > About me.
 
- I like Harvest Moon: Animal Parade (this game has a hold on me. I LOVE IT. PLEASE PLAY HARVEST MOON: ANIMAL PARADE IF POSSIBLE ITS SUCH A FUN GAME AND THE SOUNDTRACK IS LITERALLY THE BEST), cookie run: kingdom, Genshin Impact, and dandys world (not too much, but enough to warrant this being placed here).
+ I like Harvest Moon: Animal Parade (this game has a hold on me. I LOVE IT. PLEASE PLAY HARVEST MOON: ANIMAL PARADE IF POSSIBLE ITS SUCH A FUN GAME AND THE SOUNDTRACK IS LITERALLY THE BEST), Pokemon, cookie run: kingdom, Genshin Impact, and dandys world (not too much, but enough to warrant this being placed here).
 
  I may be blunt at times, or dry. However, I am not devoid of warmth, as I am friendly and I will likely joke around with you.
 

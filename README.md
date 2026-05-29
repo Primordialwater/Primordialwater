@@ -15,8 +15,6 @@ People who mistreat others based on rumors, or based on things that hold no proo
 
 People who encourage self harming behaviors.
 
-People who generalize groups of people.
-
 <details>
   <summary>People who encourage, participate, or justify sensitive subjects</summary>
 

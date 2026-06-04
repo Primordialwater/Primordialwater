@@ -68,4 +68,4 @@ If you, or someone you know, needs help, please try to find out the hotline spec
 
 > Thank you for reading, I appreciate it.
 
-..Can we rest now?
+..I'm tired.

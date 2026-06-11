@@ -36,7 +36,7 @@ For the above: if you wish for more information on what 'sensitive subjects' ent
 
  I may be blunt at times, or dry. However, I am not devoid of warmth, as I am friendly and I will likely joke around with you.
 
- My mood will randomly change, or how I talk (text?), I don't know, It just happens.
+ I'm feel tired like 70% of the time so if I suddenly go from all hyper to zzz its not your fault.
 
  I have autism, so let that explain the reason why I may act the way I sometimes do, of course, if I do something wrong, do not use this (my autism) as a way to justify my actions.
 

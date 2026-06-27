@@ -42,13 +42,11 @@ For the above: if you wish for more information on what 'sensitive subjects' ent
 
  If I do end up doing something wrong, explain it to me (calmly), and I will not do it again.
 
- I sometimes may purposefully misspell words when talking to others SOMETIMES (ex. like becomes liek), if you cannot read my text because of this and I'm hanging out with, talking to, or in a conversation with you, you can tell me, and do it nicely, please!
-
- This does not mean all my misspelling is on purpose, alright?
+I mispell words a lot, if you need me to correct my spelling becasue you cannot read it, just tell me! I won't mind.
 
  C+hing is allowed unless my name reads : Dniuid / Dni, if you plan on C+hing, please ask me first (For both cases; if my name states C+H, it is allowed and, you do not need to ask).
 
- I do like to tease my friends, should you become a victim of my chaffing, and dislike such, please do tell me (clearly), as I may not understand any clues you place for me.
+ I sometimes tease my friends, should you be subject to this and dislike it, please do tell me (clearly), as I may not understand any clues you place for me.
 
 > Some things I find important to note.
 

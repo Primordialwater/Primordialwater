@@ -1,10 +1,10 @@
 # Information
 Note: This readme will change as time goes on, such as being edited to reflect my current ideas, fixations, boundaries, or will be edited to fix something.
 
-If you wish to support someone, there is a fundraiser started by @InefferableNoesis that aims to help himself gain better footing in this world during hard times, the fundraiser link is : https://gofund.me/fa0378500 , and there is more information about the situation on the gofundme page. Thank you for reading this section.
+If you wish to support someone, there is a fundraiser started by [IneffableNoesis](https://github.com/IneffableNoesis) that aims to help himself gain better footing in this world during hard times, the fundraiser link is : https://gofund.me/fa0378500 , and there is more information about the situation on the gofundme page. Thank you for reading this section.
 
 ...
-
+testing this ..shh
 > Do not interact.
 
 People who are aware of someone's boundaries, but will continously push them, or defy them.

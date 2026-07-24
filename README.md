@@ -43,7 +43,7 @@ For the above: if you wish for more information on what 'sensitive subjects' ent
 
  If I do end up doing something wrong, explain it to me (calmly), and I will not do it again.
 
-I mispell words a lot, if you need me to correct my spelling becasue you cannot read it, just tell me! I won't mind.
+I mispell words a lot, if you need me to correct my spelling because you cannot read it, just tell me! I won't mind.
 
  C+hing is allowed unless my name reads : Dniuid / Dni, if you plan on C+hing, please ask me first (For both cases; if my name states C+H, it is allowed and, you do not need to ask).
 

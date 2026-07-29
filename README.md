@@ -17,7 +17,7 @@ People who mistreat others based on rumors, or based on things that hold no proo
 People who encourage self harming behaviors.
 
 <details>
-  <summary>People who encourage, participate, or justify sensitive subjects</summary>
+  <summary>People who encourage, participate in, or justify sensitive subjects</summary>
 
   ```
   Rape, sex trafficking, pedophillia, racism, misogyny, sexism, homophobia, transphobia, sexualizing minors, ableism, ect.
